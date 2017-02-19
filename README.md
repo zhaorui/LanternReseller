@@ -28,4 +28,4 @@ Thank you!
 2.不要轻信网络上的信息，保持冷静的头脑，辩证地看待问题！    
     
 1.Project Lantern isn't easy to get this far. Please don't use it for political, pornographic, or criminal purpose.   
-2.Don't trust any info you see from the Internet easily. Keep your mind cool, and look at the problem objectively!   
+2.Don't trust any info you see from the Internet easily. Keep your mind calm, and look at problems objectively!   
