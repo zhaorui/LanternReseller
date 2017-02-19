@@ -18,7 +18,7 @@
 4. You can pay us by Paypal, Bitcoin, Wechat, Alipay etc.💵
 5. We'd love to make friends, no matter where you are, always pleasure to Help!✌️
 
-##Support Us!🙏
+##支持我们！Support Us!🙏
 喜欢我们的话给我们加颗星吧！🌟    
 If you like this, star us!!   
 Thank you!
